@@ -1,0 +1,1 @@
+# DumaiYakMatematek-MindmapTask1
